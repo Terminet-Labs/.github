@@ -24,6 +24,6 @@ Terminet is dedicated to helping investors and ordinary Token holders earn profi
 
  [*Medium*](https://medium.com/@Terminet) *|* [*Twitter*](https://twitter.com/Terminet123) *|*[*Telegram*](https://t.me/+fQGw5EbQ4TE0NDZl)| [*Discord*](https://discord.gg/UDJ5xreqtb)
  
- ## contact us
+ ## Contact us
  We are happy to talk to and meet with anyone interested in discussing collaboration/partnership etc.
  Email: support@terminet.io
